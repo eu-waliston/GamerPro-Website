@@ -28,9 +28,7 @@ https://user-images.githubusercontent.com/82295321/147366201-57727a45-2fbb-4840-
 
 https://bkt-tonton.github.io/GamerPro-Website/
 
-<br>
 
-![YdBN](https://user-images.githubusercontent.com/82295321/147366629-d521616f-ea64-4406-a519-effaaa5351b8.gif)
 
 
 
