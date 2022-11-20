@@ -26,7 +26,7 @@ https://user-images.githubusercontent.com/82295321/147366201-57727a45-2fbb-4840-
 
 <strong> link below 	:arrow_heading_down:  </strong>
 
-https://bkt-tonton.github.io/GamerPro-Website/
+https://wal-wizard.github.io/GamerPro-Website/
 
 
 
